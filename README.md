@@ -3,9 +3,9 @@
 Monopoly Go Dice Link not working for you?
 Have you just tried claiming a Monopoly Go Dice Link and it didn't work? Dice links can only be redeemed once per Monopoly Go account, so if you click on a link and get a message that says "This reward has already been claimed" then that means you've redeemed it previously. If you get a message that says "This reward cannot be claimed" then that means one of two things. This error message appears when a link has expired, or when a link has just been released - and you need to close and re-open your Monopoly Go app to get it working. Keep checking back here, we are constantly updating this page with the latest links, and removing links when they stop working.
 
-:::: Click here ►🔴✅👉 Monopoly Go Free Dice	https://offersfrog.com/monopoly/
+:::: Click here ►🔴✅👉 [Monopoly Go Free Dice](https://offersfrog.com/monopoly/)
 
-:::: Click here ►🔴✅👉 Monopoly Go Free Dice	https://offersfrog.com/monopoly/
+:::: Click here ►🔴✅👉 [Monopoly Go Free Dice](https://offersfrog.com/monopoly/)
 
 
 If you click on a dice link and it doesn't even open in Monopoly Go then that's a different issue. From our experience, there can sometimes be teething troubles when you try to open a dice link on an Android device. When you click on a link in your browser, you should get a pop-up menu asking you to 'open in another app'.
